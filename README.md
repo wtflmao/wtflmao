@@ -14,3 +14,20 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+### Who am I ?
+A freshman learning radio wave propagation in Men's Vocational and Technical School of Northen Thunder Village (MVTSNTV).
+
+### Where am I?
+Jupiter. As same as the location I wrote in my bio.
+
+### What are you learning?
+Physics and computer science.
+
+### Dream or Technoblade?
+Of course Technoblade. Technoblade neva dies!
+
+#### ps: 
+Physics changes the world, optoelectronics leads the future
+
+Don't forget to say hi to me if you see a guy in Hypixel Skyblock called "hhzm"!
