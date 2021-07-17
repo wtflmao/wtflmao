@@ -15,7 +15,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-### Who am I ?
+### Who am I?
 A freshman learning radio wave propagation in Men's Vocational and Technical School of Northern Thunder Village (MVTSNTV).
 
 ### Where am I?
