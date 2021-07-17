@@ -16,13 +16,13 @@ Here are some ideas to get you started:
 -->
 
 ### Who am I ?
-A freshman learning radio wave propagation in Men's Vocational and Technical School of Northen Thunder Village (MVTSNTV).
+A freshman learning radio wave propagation in Men's Vocational and Technical School of Northern Thunder Village (MVTSNTV).
 
 ### Where am I?
 Jupiter. As same as the location I wrote in my bio.
 
 ### What are you learning?
-Physics and computer science.
+Physics and Computer Science.
 
 ### Dream or Technoblade?
 Of course Technoblade. Technoblade neva dies!
