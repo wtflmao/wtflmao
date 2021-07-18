@@ -21,13 +21,13 @@ A freshman learning radio wave propagation in Men's Vocational and Technical Sch
 ### Where am I?
 Jupiter. As same as the location I wrote in my bio.
 
-### What are you learning?
+### What am I learning?
 Physics and Computer Science.
 
 ### Dream or Technoblade?
 Of course Technoblade. Technoblade neva dies!
 
-#### ps: 
-Physics changes the world, optoelectronics leads the future
+#### PS: 
+Physics changes the world, optoelectronics leads the future!
 
 Don't forget to say hi to me if you see a guy in Hypixel Skyblock called "hhzm"!
