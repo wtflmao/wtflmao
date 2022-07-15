@@ -15,19 +15,18 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-### Who am I?
-A freshman learning radio wave propagation in Men's Vocational and Technical School of Northern Thunder Village (MVTSNTV).
+### who am i ?
+owo, meow
 
-### Where am I?
-Jupiter. As same as the location I wrote in my bio.
+### what you like ?
+discord
 
-### What am I learning?
-Physics and Computer Science.
+### your pronoun plz ?
+N-V-I-D-I-A R-T-X 30-60/I-N-T-E-L C-O-R-E I-9 12-900-K
 
-### Dream or Technoblade?
-Of course Technoblade. Technoblade neva dies!
+### ever touched grass outside ?
+never, stop asking
 
-#### PS: 
-Physics changes the world, optoelectronics leads the future!
+## dream or technoblade ?
+Of course Technoblade!
 
-Don't forget to say hi to me if you see a guy in Hypixel Skyblock called "hhzm"!
