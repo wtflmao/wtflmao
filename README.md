@@ -22,7 +22,7 @@ owo, meow
 discord
 
 ### your pronoun plz ?
-N-V-I-D-I-A R-T-X 30-60/I-N-T-E-L C-O-R-E I-9 12-900-KF
+N-V-I-D-I-A R-T-X 30-60/I-N-T-E-L C-O-R-E I-9 12-900-K-F
 
 ### ever touched grass outside ?
 never, stop asking
