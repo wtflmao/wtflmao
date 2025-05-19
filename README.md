@@ -21,4 +21,6 @@ Wtf Lmao.
 ## dream or technoblade ?
 Of course Technoblade!
 
-![Wtf Lmao's GitHub stats](https://github-readme-stats.vercel.app/api?username=wtflmao&show_icons=true&theme=dark)
+<picture>
+  <img src="https://github.com/wtflmao/metrics/raw/refs/heads/master/github-metrics.svg" alt="Metrics">
+</picture>
